@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... whatsapp
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love playing badminton
+I am interested in solving math problems.
 -->
